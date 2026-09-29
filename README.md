@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Me llamo Natalia Arce
+Me llamo Natalia Arce  
 Actualmente soy estudiante de 2do de ASIR en el instituto IES Miguel Herrero
